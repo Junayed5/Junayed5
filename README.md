@@ -1,4 +1,4 @@
-![I am Front end developer](https://i.ibb.co/qMNmfN5/Banner-1.jpg)
+![I am Front end developer](https://i.ibb.co/pdKY2qc/junayed-linked-In-cover.png)
 
 ### Hi there 👋, This is Junayed
 #### I am Front end developer
